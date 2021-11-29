@@ -1,0 +1,1 @@
+my diary, I fuck up, I didn't go to Utah
